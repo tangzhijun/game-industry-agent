@@ -1,4 +1,4 @@
-# 游戏行业日报 2026-11-24
+# 游戏行业日报 2026-11-25
 
 ## [https://www.gamelook.com.cn/](https://www.gamelook.com.cn/)
 无内容
